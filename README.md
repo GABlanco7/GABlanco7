@@ -1,3 +1,3 @@
-# Tecnico en sistemas
+# Tecnico laboral auxiliar en sistemas informaticos
 
 # Analisis y Desarrollo desoftware
